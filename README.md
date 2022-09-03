@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @noteccom
+- 📫 How to reach me ...
+
